@@ -1,1 +1,1 @@
-today  is 2008-8-8
+today  is 1994-8-16
